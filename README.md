@@ -2,8 +2,7 @@
 
 Hauptberuflich Wissenschaftler. Opfer der medial wirksamen Falschbeschuldigung, exhibitionistische Handlungen in der Universität begangen zu haben. Ein unrechtmäßiges sechsmonatiges Hausverbot kassiert. Durch Befangenheit des Verwaltungsrichters wurde der Gerechtigkeit nicht Genüge getan. Die Medien sorgen für die Verbreitung verdrehter Darstellungen und falscher Informationen.
 
-Zeit, die Geschehnisse richtigzustellen.
-
+Zeit, die Geschehnisse richtigzustellen.\
 (Ursprünglich unter https://www.facebook.com/bibwichser/)
 
 ## Offener Brief
