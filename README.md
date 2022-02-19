@@ -1,7 +1,6 @@
 # bibwichser.github.io
 
-Hauptberuflich Wissenschaftler. Opfer der medial wirksamen Falschbeschuldigung, exhibitionistische Handlungen in der Universität begangen zu haben. Ein unrechtmäßiges sechsmonatiges Hausverbot kassiert. Durch Befangenheit des Verwaltungsrichters wurde der Gerechtigkeit nicht Genüge getan. Die Medien sorgen für die Verbreitung verdrehter Darstellungen und falscher Informationen.
-
+Hauptberuflich Wissenschaftler. Opfer der medial wirksamen Falschbeschuldigung, exhibitionistische Handlungen in der Universität begangen zu haben. Ein unrechtmäßiges sechsmonatiges Hausverbot kassiert. Durch Befangenheit des Verwaltungsrichters wurde der Gerechtigkeit nicht Genüge getan. Die Medien sorgen für die Verbreitung verdrehter Darstellungen und falscher Informationen.\
 Zeit, die Geschehnisse richtigzustellen.\
 (Ursprünglich unter https://www.facebook.com/bibwichser/)
 
@@ -13,7 +12,8 @@ https://bibwichser.github.io/docs/offenerBrief.pdf
 
 Sound: https://bibwichser.github.io/mp3/interviewBibwichser_richtigstellung.mp3
 
-Bezieht sich auf https://bibwichser.github.io/mp3/interviewAachenerGericht_falschinformationen.mp3. (Urspünglich verfügbar unter https://www.hochschulradio-aachen.de/node/3981.)
+Bezieht sich auf https://bibwichser.github.io/mp3/interviewAachenerGericht_falschinformationen.mp3.\
+(Urspünglich verfügbar unter https://www.hochschulradio-aachen.de/node/3981.)
 
 Stellungsnahme: https://bibwichser.github.io/img/aachenerGericht_korrektur.png
 
