@@ -18,6 +18,6 @@ Bezieht sich auf [bibwichser.github.io/mp3/interviewAachenerGericht_falschinform
 (Urspünglich verfügbar unter [www.hochschulradio-aachen.de/node/3981](https://www.hochschulradio-aachen.de/node/3981).)\
 Stellungsnahme: [bibwichser.github.io/img/aachenerGericht_korrektur.png](https://bibwichser.github.io/img/aachenerGericht_korrektur.png) \([Original](https://www.facebook.com/bibwichser/posts/154549412073878)\) \([Archivbeitrag](https://web.archive.org/web/20220219021226/https://www.facebook.com/plugins/post.php?href=https%3A%2F%2Fwww.facebook.com%2Fbibwichser%2Fposts%2F154549412073878)\)
 
-## Philosophische Hintergründe erläutert in einer Debatte mit einem Troll
-[bibwichser.github.io/img/debatte_troll.png](https://bibwichser.github.io/img/debatte_troll.png)
+## Philosophische Hintergründe, erläutert in einer Debatte mit einem Troll
+[bibwichser.github.io/img/debatte_troll.png](https://bibwichser.github.io/img/debatte_troll.png)\
 (Ursprünglich in den Kommentaren unter [www.facebook.com/bibwichser/posts/198849454310540](https://www.facebook.com/bibwichser/posts/198849454310540).)
