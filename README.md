@@ -5,7 +5,7 @@ Zeit, die Geschehnisse richtigzustellen.\
 (Steckbrief ursprünglich unter [www.facebook.com/bibwichser/](https://www.facebook.com/bibwichser/).)
 
 ## Offener Brief
-https://bibwichser.github.io/docs/offenerBrief.pdf
+[bibwichser.github.io/docs/offenerBrief.pdf](https://bibwichser.github.io/docs/offenerBrief.pdf)
 
 ## Interview mit dem Hochschulradio Aachen, Beitrag vom 1.8.2018.
 Sound: [bibwichser.github.io/mp3/interviewBibwichser_richtigstellung.mp3](https://bibwichser.github.io/mp3/interviewBibwichser_richtigstellung.mp3)\
