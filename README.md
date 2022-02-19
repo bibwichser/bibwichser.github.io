@@ -4,7 +4,7 @@ Hauptberuflich Wissenschaftler. Opfer der medial wirksamen Falschbeschuldigung, 
 Zeit, die Geschehnisse richtigzustellen.\
 (Steckbrief ursprünglich unter [www.facebook.com/bibwichser/](https://www.facebook.com/bibwichser/).)
 
-## Offener Brief
+## Offener Brief an die RWTH Aachen
 [bibwichser.github.io/docs/offenerBrief.pdf](https://bibwichser.github.io/docs/offenerBrief.pdf)
 
 ## Interview mit dem Hochschulradio Aachen, Beitrag vom 1.8.2018.
