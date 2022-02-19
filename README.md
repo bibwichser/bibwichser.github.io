@@ -10,7 +10,7 @@ Zeit, die Geschehnisse richtigzustellen.\
 ## Interview mit dem Hochschulradio Aachen, Beitrag vom 1.8.2018.
 Sound: [bibwichser.github.io/mp3/interviewBibwichser_richtigstellung.mp3](https://bibwichser.github.io/mp3/interviewBibwichser_richtigstellung.mp3)\
 (Ursprünglich verfügbar unter [www.hochschulradio-aachen.de/node/4018](https://www.hochschulradio-aachen.de/node/4018).)\
-Ankündigung + ethische Fragen: [bibwichser.github.io/img/interview_ank%C3%BCndigung.png](https://bibwichser.github.io/img/interview_ank%C3%BCndigung.png) \([Original](https://www.facebook.com/bibwichser/posts/198849454310540)\) \([Archivbeitrag](https://web.archive.org/web/20220219021151/https://www.facebook.com/plugins/post.php?href=https%3A%2F%2Fwww.facebook.com%2Fbibwichser%2Fposts%2F198849454310540)\)
+Ankündigung + ethische Fragen: [bibwichser.github.io/img/interview_ankündigung.png](https://bibwichser.github.io/img/interview_ank%C3%BCndigung.png) \([Original](https://www.facebook.com/bibwichser/posts/198849454310540)\) \([Archivbeitrag](https://web.archive.org/web/20220219021151/https://www.facebook.com/plugins/post.php?href=https%3A%2F%2Fwww.facebook.com%2Fbibwichser%2Fposts%2F198849454310540)\)
 
 
 
